@@ -1,6 +1,6 @@
 # BG-DEVELOPER
 
-✅ YouTube & Fb Channel Moderator ✅ Discord Moderator ✅ Editor And Designer ✅ Gamer And Streamer ✅ Fivem Developing
+👁‍🗨 YouTube & Fb Channel Moderator 👁‍🗨 Discord Moderator 👁‍🗨 Editor And Designer 👁‍🗨 Gamer And Streamer 👁‍🗨 Fivem Developing
 
 # Information - B4DBOY {BG DEVELOPER}
 # Discord - https://discord.gg/gNcatbjMkf
