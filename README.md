@@ -1,17 +1,17 @@
-# BG-DEVELOPER
+# BG-DEVELOPERS
 
-👁‍🗨 YouTube & Fb Channel Moderator 👁‍🗨 Discord Moderator 👁‍🗨 Editor And Designer 👁‍🗨 Gamer And Streamer 👁‍🗨 Fivem Developing
+💯 Video Editor | Youtuber | Gamer | Fivem Dev | Graphic Design | Discord Moderator | YouTube & Fb Channel Moderator 💯
 
-# Information - B4DBOY {BG DEVELOPER}
+# Information - B4DBOY {BG DEVELOPERS}
 # Discord - https://discord.gg/gNcatbjMkf
 
 
-⚔️ BadBoy Gaming Social Media
+⚔️ B4dboy Social Media
 
 📌 Facebook : http://bit.ly/2PdfCTM
 📌 Discord : https://bit.ly/3ibbJrw
-📌 Twitch : http://bit.ly/2NuM3ud
+📌 Twitch : http://bit.ly/3YFR5XB
 📌 Steam : http://bit.ly/2Nual7K
 📌 WhatsApp : http://bit.ly/2YTjgCK
 📌 Youtube : http://bit.ly/2Nvoodq
-📌 TikTok : https://bit.ly/3Rtn4VF
+📌 TikTok : https://bit.ly/3PPvwQb
